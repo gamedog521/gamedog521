@@ -1,4 +1,6 @@
-## Hi there 👋
+## 쿠키런 좋아🍪❤️![image](https://github.com/user-attachments/assets/24436bd7-1cee-423f-b272-74a93c45ca06)
+
+
 
 <!--
 **gamedog521/gamedog521** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
